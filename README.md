@@ -6,3 +6,4 @@
 4. Steven Universe Season 1-5
 5. Steven Universe Movie
 6. Steven Universe Future
+7. Gravity Falls Season 1-2
